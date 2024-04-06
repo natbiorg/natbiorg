@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @natbiorg. My background is in economics and anthropology but I'm currently working as a User Experience Researcher! 
+- 👀 I’m interested in urban planning, spatial anthropology, and visual arts.  
+- 🌱 I’m currently learning everything. I've never coded before and am just starting out. I have some experience in STATA but otherwise completely lost. 
+- 📫 You can reach me via LinkedIn: https://www.linkedin.com/in/natalie-r-191283120/ 
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love hiking! 
